@@ -5,3 +5,5 @@ Meditation & Massage. Stress relief and relaxation are hugely impactful in achie
 https://selfcarebestie.com/2020/08/27/ways-to-activate-your-parasympathetic-nervous-system/ - 20 ways , gratitude
 
 https://biostrap.com/blog/7-ways-to-restore-parasympathetic-balance/ - 
+
+https://www.youtube.com/watch?v=SkJdKsiCyyM - Calming Anxiety with your Body’s built in Anti-Anxiety Response - The Parasympathetic Nervous System, A calm body creates a calm mind
