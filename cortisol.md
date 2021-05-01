@@ -8,3 +8,11 @@ https://shopgoodjane.com/cbd-and-cortisol/ - CBD is believed to interfere with t
 
 
 https://www.pandacbd.com/how-much-cbd-to-lower-cortisol-levels-do-you-need/ -  CBD interacts with your endocrine system to regulate hormone production. Since the endocrine system is in charge of managing stress and thus producing cortisol, CBD can be used to directly manage cortisol production. 
+
+https://www.livestrong.com/article/521720-how-to-get-cortisol-out-of-your-system/ - Examples include getting enough sleep, listening to relaxing music, meditation, massage, aromatherapy, exercise, sunlight, fresh air, good nutrition and vacations. 
+Rich sources of omega 3 fatty acids, such as fish oil, can lower stress levels and subsequently reduce cortisol levels 
+B Complex vitamins, commonly called B-Stress vitamins can be effective in regulating stress and therefore keeping cortisol levels in check
+Magnesium and vitamin C are two other important nutrients for reducing stress and lowering cortisol levels
+Herbs that may help reduce cortisol include rhodiola, ginseng, green tea and valerian.
+
+
