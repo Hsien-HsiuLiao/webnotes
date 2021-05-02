@@ -7,3 +7,13 @@ https://selfcarebestie.com/2020/08/27/ways-to-activate-your-parasympathetic-nerv
 https://biostrap.com/blog/7-ways-to-restore-parasympathetic-balance/ - 
 
 https://www.youtube.com/watch?v=SkJdKsiCyyM - Calming Anxiety with your Body’s built in Anti-Anxiety Response - The Parasympathetic Nervous System, A calm body creates a calm mind
+1. EFT
+2. laughter
+3. yoga legs up 
+4. cold water face
+5. mono-tasking
+6. mindfulness
+7. sex
+8. pay attention biorhythms
+9. hug someone you care about
+10. stretching
