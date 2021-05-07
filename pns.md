@@ -17,3 +17,19 @@ https://www.youtube.com/watch?v=SkJdKsiCyyM - Calming Anxiety with your Body’s
 8. pay attention biorhythms
 9. hug someone you care about
 10. stretching
+
+
+breath of fire - https://www.3ho.org/kundalini-yoga/pranayam/pranayam-techniques/breath-fire
+Benefits of Breath of Fire:
+
+    Releases toxins and deposits from the lungs, mucous linings, blood vessels, and other cells.
+    Expands the lung capacity and increases vital strength.
+    Strengthens the nervous system to resist stress.
+    Repairs the balance between the sympathetic and parasympathetic nervous systems.
+    Strengthens the navel chakra.
+    Increases physical endurance and prepares you to act effectively.
+    Adjusts the subtle psycho-electromagnetic field of the aura so that the blood becomes energized.
+    Reduces addictive impulses for drugs, smoking, and bad foods.
+    Increases oxygen delivery to the brain, facilitating a focused, intelligent, and neutral state of mind.
+    Boosts the immune system and may help prevent many diseases.
+    Promotes synchronization of the biorhythms of the body’s systems.
