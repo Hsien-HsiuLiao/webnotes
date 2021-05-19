@@ -17,3 +17,5 @@ https://www.eatthis.com/food-hacks-for-better-sleep/ - kiwi, Passion flower tea 
 Tomatoes seem to go perfectly with so many dinners, especially pasta dishes. But those delicious bursts of flavor may be causing painful bursts of heartburn later in the night.
 Cherries have a natural melatonin content, which signals to the body that it's time to go to bed," says Towson. "A good cherry dessert is very good for sleep."
 "Strive to eat a diet full of fresh fruits, vegetables, whole grains, and low-fat proteins that are rich in B vitamins," Judge says. "B vitamins help to regulate melatonin, a hormone that works to regulate your sleep cycles."
+
+https://www.3ho.org/3ho-lifestyle/health-and-healing/kriya-conquering-sleep
