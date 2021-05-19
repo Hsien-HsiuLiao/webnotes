@@ -17,3 +17,5 @@ Herbs that may help reduce cortisol include rhodiola, ginseng, green tea and val
 
 
 https://ideas.time.com/2013/08/16/singing-changes-your-brain/ - The benefits of singing regularly seem to be cumulative. In one study, singers were found to have lower levels of cortisol, indicating lower stress. 
+
+https://www.lifehack.org/288228/11-amazing-benefits-singing-you-may-not-know - Because singing can lower your blood pressure, cause you to have lower cortisol levels, and decrease your stress and anxiety, it will certainly have a positive effect on your immune system. 
