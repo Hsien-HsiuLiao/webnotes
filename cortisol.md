@@ -16,3 +16,4 @@ Magnesium and vitamin C are two other important nutrients for reducing stress an
 Herbs that may help reduce cortisol include rhodiola, ginseng, green tea and valerian.
 
 
+https://ideas.time.com/2013/08/16/singing-changes-your-brain/ - The benefits of singing regularly seem to be cumulative. In one study, singers were found to have lower levels of cortisol, indicating lower stress. 
