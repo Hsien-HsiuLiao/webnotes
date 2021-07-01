@@ -14,3 +14,5 @@ https://cbdinstead.com/blogs/cbd-for-anxiety/what-is-the-amygdala-hijack - One o
 https://www.healthyplace.com/blogs/traumaptsdblog/2013/02/are-you-sensitizing-your-amygdala
 
 https://www.healthline.com/health/stress/amygdala-hijack
+
+kgoode - Rational and logical control from the pre-frontal cortex over the amygdala are weakened when you're sleep deprived
